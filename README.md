@@ -4,3 +4,5 @@
 #### We ended up in Top 10!
 
 ![We are in Top 10!](certificate.jpg)
+
+!(IMG_9711.HEIC)
